@@ -1,0 +1,2 @@
+# projek-magang
+semoga sukses
